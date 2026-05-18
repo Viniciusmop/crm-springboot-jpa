@@ -171,7 +171,7 @@ GitHub:
 https://github.com/Viniciusmop
 
 LinkedIn:
-(adicione seu LinkedIn aqui)
+(https://www.linkedin.com/in/vin%C3%ADcius-parreira/)
 
 ---
 
